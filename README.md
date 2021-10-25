@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ayuyohana
-- 👀 I’m interested in outfit
+- 👀 I’m interested in pharmacy
 - 🌱 I’m currently learning HTML and CSS
 - 📫 How to reach me e-mail : ayuyohana50461@gmail.com
 
